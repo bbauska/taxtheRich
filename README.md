@@ -3,6 +3,7 @@ Let's Tax the Rich like they should be. Like they always were.
 
 https://www.youtube.com/watch?v=ejqSOOzEQQU
 
+<H2>Musk/Trump work for Employers, NOT Employees!</H2>
 <h2>Stop deregulating corporate greed.</h2>
 <h2>Corporations are NOT people.</h2>
 <h2>Don't drink the KoolAid.</h2>
