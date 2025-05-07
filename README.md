@@ -1,6 +1,8 @@
 # taxtheRich
 Let's Tax the Rich like they should be. Like they always were. 
 
+# project2025 funded by 2 brothers, the Koch's
+
 # stoptheGRIFT
 
 # Drumpf is a dictator, fire him!
