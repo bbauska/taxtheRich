@@ -7,7 +7,7 @@ Let's Tax the Rich like they should be. Like they always were.
 
 # Drumpf is a dictator, fire him!
 
-https://www.youtube.com/watch?v=ejqSOOzEQQU
+<h4><a href="https://www.youtube.com/watch?v=ejqSOOzEQQU">All Honest but BAD News</a>
 
 <H2>Musk/Trump work for Employers, NOT Employees!</H2>
 <h2>Stop deregulating corporate greed.</h2>
