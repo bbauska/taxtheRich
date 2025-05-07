@@ -1,6 +1,8 @@
 # taxtheRich
 Let's Tax the Rich like they should be. Like they always were. 
 
+# stop the transfer of wealth
+
 # america has no Humanitarians
 
 # project2025 funded by 2 brothers, the Koch's
