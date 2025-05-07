@@ -1,6 +1,8 @@
 # taxtheRich
 Let's Tax the Rich like they should be. Like they always were. 
 
+# Drumpf is a dictator, fire him!
+
 https://www.youtube.com/watch?v=ejqSOOzEQQU
 
 <H2>Musk/Trump work for Employers, NOT Employees!</H2>
